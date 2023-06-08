@@ -30,7 +30,7 @@
 ---
 Contributions,issues and feature requests are welcome!
 
-Feel Free to connect [here](sreekanthharisree2000@gmail.com)
+Feel Free to connect [here](https://www.linkedin.com/in/sreekanthsp/)
 
 ## License
 ---
